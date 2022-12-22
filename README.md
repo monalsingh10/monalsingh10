@@ -1,4 +1,4 @@
-Former Intern @Siemens and @DRDO | SIH'22 Finalist | Open Source Contributor'21 @GWOC. 
+Former Intern @Siemens and @DRDO,@TechCiti | SIH'22 Finalist | Open Source Contributor'21 @GWOC. 
 
 
 <!---
